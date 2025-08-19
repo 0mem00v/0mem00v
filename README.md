@@ -1,6 +1,11 @@
-ㅤ<img width="2700" height="700" alt="0mem00v" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQl_3l9OjP9uEhcBA6TMoNdesl6u16ikMCHYQ&s" />
-<img width="2700" height="150" alt="0mem00v" src="https://i.pinimg.com/736x/45/db/2f/45db2fc93c12cd745172a2aa1c5272a8.jpg" />
+ [SCAM PHISHING MOSHENNICHESTVO VOROVSTVO CHEATERING BIG B00BIES](https://t.me/omem00v) 
+ 
+ <p align="center"> 
+ 
+ <img width="50" height="25" alt="0mem00v" src="https://media.tenor.com/yso9Ncqwm5UAAAAj/click-subscribe.gif" />
 
-<p align="center">
+ <img width="2700" height="500" alt="0mem00v" src="https://media1.tenor.com/m/xaeDWERliE8AAAAd/picmix-funny-cat.gif" />
 
-  ![](https://komarev.com/ghpvc/?username=0mem00v&style=for-the-badge&color=4B0082&label=лошки🤡) 
+ <img width="230" height="230" alt="0mem00v" src="https://media.tenor.com/DtWJ9V2qRpoAAAAj/kokichi-danganronpa.gif" /> <img width="230" height="230" alt="0mem00v" src="https://media.tenor.com/d_8GmiRfosAAAAAj/gimme-cmere.gif" /> <img width="230" height="230" alt="0mem00v" src="https://i.pinimg.com/736x/21/e2/67/21e267c71cc5307a0122f5b5997cd769.jpg" /> <img width="180" height="130" alt="0mem00v" src="https://media1.tenor.com/m/3ry9dtUDmZ0AAAAd/roblox-my-dad-works-for-roblox.gif" /> <img width="120" height="120" alt="0mem00v" src="https://media.tenor.com/RXH6sdWermEAAAAi/epic-face.gif" />
+
+
